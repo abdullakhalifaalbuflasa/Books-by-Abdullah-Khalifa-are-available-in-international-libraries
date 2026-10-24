@@ -1,3 +1,6 @@
+عبـــــــدالله خلـــــــيفة
+https://abdullakhalifa.com
+
 # Books-by-Abdulla-Khalifa-are-available-in-international-libraries
 ⇽ Foyles Bookshop in Britain: Books by Abdullah Khalifa are available in its seven stores in London, Chelmsford, Birmingham, and Bristol in England // Words that turn the world upside down. This is not merely a book, but a cry in the face of falsehood, and a firm grip on the collar of truth. https://t.co/ukKdmK5V7U
 ⇽ #Waterstones_Bookshop (Waterstones) in #Britain: Books by #Abdullah_Khalifa are available in the city of #London in England // Words that turn the world upside down. This is not merely a book, but a cry in the face of falsehood, and a firm grip on the collar of truth. Here, words become spears that pierce the wall of silence. https://t.co/RqN0UZvn9H
